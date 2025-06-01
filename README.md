@@ -48,7 +48,6 @@ No limits. Just pure decentralized power.
 ## 🚀 Why SHBN?
 
 - ✅ **Community-Driven**  
-- ✅ **Zero Bullsh\*t**  
 - ✅ **Pure Meme Culture**  
 - ✅ **Launched Fairly**  
 - ✅ **Built on Solana – fast & cheap**  
